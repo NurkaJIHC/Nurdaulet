@@ -1,2 +1,0 @@
-# Nurdaulet
-My live
